@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft trading bot with high-frequency NFT Bot for nft trading bot | gas-fee-estimation & multi-wallet-support. Featuring gas-fee-estimation and
 
 
 
